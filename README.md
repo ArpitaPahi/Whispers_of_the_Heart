@@ -21,13 +21,6 @@ In the tapestry of love, there exists a thread of serendipity, weaving a tale of
 
 
 
-I have always romanticised the idea of love but never in my life did I have a story to tell about love that made me feel like I was the main character of a novel until I met you. There is something about the way you say my name that makes it sound more pure. There is something about the way you look at me in a crowded room that makes me feel like I’m the only person you see.
-Love is a scary notion. Giving your heart to someone who has the power to break it into million pieces feels like a risk that’s not worth taking. But when I look at you I feel like I might just go ahead and take risk. For once, I feel like just maybe this story might turn out to be one straight out of a novel. A story that’s filled with the sound of laughter, dances around the kitchen, travelling around the world and enjoying life in each other’s company.
-I wish I could see myself through your eyes. I have a feeling I’d look more radiant then. When you look at me I feel radiant. Like all the light in the world is shining on my face. I feel completely and utterly beautiful. Maybe love is possible. Maybe happily ever after is real. And maybe it’s all gonna be true with you.
-But I know, I may be too much at times, I constantly need reassurance from you because I have been hurt a lot of times in the past and I’m tired of pretending that I am okay even when I am not. And on the days when I don’t feel like myself, just hold my hand and tell me that we are in this together and no matter how hard life gets, we will have each other’s back.
-I won’t lie, but somehow I am afraid of finding the courage to love again, for I have been hurt in love too many times and it’s not your fault. What if I told you I dint just want to be loved, I want to be desired and feel protected at the same time? Will you stay if I tell you I am tired of feeling unwanted and left alone in the end? My expectations in love are fairly low. I don’t want you to promise me the moon and the stars, but give me loud laughter, a safe place where I can be authentic self without the fear of ending up alone. Give me the love I never 
-received.
-Will you love me if I tell you I am still learning to love and put my trust in people? Listen, I don’t have the courage to pull myself together time after time, I am tired of finding the love that promises to be with me until it is bored. For one last time, I want someone who doesn’t give up on me when times are tough and who is afraid of losing me too. I want to find a love that stays no matter how difficult it gets. Will you be that someone for me? At last I only want to say that please love me with kindness and in the most loyal way possible, cause I’m tired.
 
 
 
